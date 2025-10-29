@@ -10,7 +10,6 @@ OKX stands as one of the world's top three cryptocurrency exchanges, trusted by 
 
 What makes OKX particularly appealing right now? Their new user benefits are honestly hard to beat. Every trade you execute—whether spot trading or futures contracts—automatically returns 20% of your trading fees. That's on top of the standard 20% discount on fees that all users receive.
 
-![OKX exchange platform interface showing trading dashboard](image/526193876988785.webp)
 
 ## Why Traders Choose OKX
 
